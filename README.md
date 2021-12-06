@@ -1,0 +1,1 @@
+# Mentality-manager-Privacy-policy.
